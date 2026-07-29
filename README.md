@@ -15,7 +15,7 @@ SpeedCAT（闪电猫）是一家面向跨境网络访问与网络加速需求用
 
 [SpeedCAT 官网注册入口](https://webinv02.sc-aff.cc/auth/register?code=sY44X9Ve)
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 ---
 
@@ -427,7 +427,7 @@ SpeedCAT 订阅通常兼容主流代理客户端。
 
 [SpeedCAT 官方注册入口](https://webinv02.sc-aff.cc/auth/register?code=sY44X9Ve)
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 ---
 
